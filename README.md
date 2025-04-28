@@ -1,8 +1,8 @@
 最新地址打不開網域前加https://
 
-ppxx.tv
+ppxx.vip
 
-海外永久（需翻牆） ppxx.tv
+海外永久（需翻牆） ppxx.vip
 
 
 
