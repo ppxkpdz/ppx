@@ -12,7 +12,7 @@ ppxkpdz@gmail.com
 
 注意郵件對同一郵箱每天只回覆一次
 
-無法看影片請使用瀏覽器的無痕模式 耗翻牆網址發佈頁：https://github.com/kkxiaohuangshu/xhsapp
+無法看影片請使用瀏覽器的無痕模式 耗翻牆網址發佈頁：https://github.com/ppxkpdz/ppx.git
 
 使用海外瀏覽器或夸克瀏覽器來存取更多
 
