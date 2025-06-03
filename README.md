@@ -1,8 +1,8 @@
 最新地址打不開網域前加https://
 
-ppxx.ai
+appx1.vip
 
-海外永久（需翻牆） ppxx.ai
+海外永久（需翻牆） appx1.vip
 
 
 
