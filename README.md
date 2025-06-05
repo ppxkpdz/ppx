@@ -1,8 +1,8 @@
 最新地址打不開網域前加https://
 
-appx1.vip
+appx2.vip
 
-海外永久（需翻牆） appx1.vip
+海外永久（需翻牆） appx2.vip
 
 
 
